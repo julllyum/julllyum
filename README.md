@@ -14,4 +14,4 @@ system analyst · label manager · business informatics student
 
 ## contacts
 
-[Telegram](t.me/julllyum) · [LinkedIn](https://www.linkedin.com/in/jjjulia-s/) · [Email](juliya.smirnovaa@gmail.com)
+[Telegram](t.me/julllyum) · [LinkedIn](https://www.linkedin.com/in/jjjulia-s/) · [Email](mailto:juliya.smirnovaa@gmail.com)
